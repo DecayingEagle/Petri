@@ -1,2 +1,2 @@
-## EAgle's Website
+## Eagle's Website
 pog
